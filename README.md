@@ -4,7 +4,7 @@
 
  ── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──
  
-  no strawpage fuck you fei and or rex, get tf out of my life *ੈ✩‧₊˚ [Pronoun page](https://en.pronouns.page/@Bootleg._) *ੈ✩‧₊˚ 
+  no strawpage fuck you fei and or rex, get tf out of my life *ੈ✩‧₊˚ 
   
    ── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──
    
